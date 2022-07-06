@@ -1,1 +1,2 @@
-☠️ RussianWarCriminals: https://rwc.shtab.net/
+- ☠️ war crimes committed by terrorussians in Ukraine: https://warcrimes.gov.ua/
+- ☠️ terrorussian war criminals database: https://rwc.shtab.net/
